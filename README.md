@@ -1,7 +1,16 @@
 # communication-awareness
 "Lär dig att kommunicera med medvetenhet och omtanke."
 Författaren: Stivjohansson. ARTICEL
+ "Lär dig att kommunicera medvetenhet och omtanke." Detta var rådet som präglade en persons liv och vägledde dem mot att bli en mästare i kommunikation. Denna händelse är en berättelse om hur en enkel insikt förändrade en persons sätt att tala och interagera med andra.
 
+    Det började med en vardagssituation. Personen insåg att de ofta talade i onödan, fyllde tystnad med meningslöst prat och skrattade vid fel tillfällen. De märkte också att detta fick dem att framstå som oberäkneliga och okoncentrerade. De bestämde sig då för att göra en förändring.
+
+    Istället för att prata mycket, började de lyssna mer uppmärksamt på andra. De gav sina ord tid att mogna innan de uttalades och valde noga när de skulle säga något. De lärde sig att tystnad kan vara kraftfull och att det är viktigt att lyssna på andra för att förstå deras perspektiv.
+
+    Detta nya sätt att kommunicera gjorde underverk. Personens relationer förbättrades, och de fick respekt och förtroende från andra. De blev en person som andra flockades till för att prata med, inte på grund av vad de sa, utan hur de lyssnade och förstod.
+
+    Så, varje ord blev en måluppfyllelse, uttalat vid rätt tillfälle och med omtanke. De insåg att att vara en visare talare handlar om mer än att prata mycket - det handlar om att kommunicera medvetet och med hjärtat.
+    Händelsen började med. 
 I en stilla förort, i en annars fridfull familj, utvecklades en tyst tragedi som skulle kasta en skugga över deras liv. Huvudrollen i denna sorgliga historia var ett gift par, Alice och David, som hade varit tillsammans i många år. Vad som en gång hade varit en kärleksfull relation hade nu blivit en tät dimma av konflikter och osagda ord.
 
 Det började smått, som de flesta konflikter gör. Ord som kastades i vredesmod, hårda kommentarer som var menade att såra. Alice, en gång så kärleksfull och stöttande, hade blivit en mästare av sarkasm och nedlåtande bemärkningar. Hon hade funnit en sätt att använda sina ord som vapen, och de skar djupt in i Davids hjärta.
